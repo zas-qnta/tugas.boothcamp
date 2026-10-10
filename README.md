@@ -1,4 +1,4 @@
-ZASKIA QANITA NAJIYAH <img width="1365" height="679" alt="Screenshot 2026-10-07 103234" src="https://github.com/user-attachments/assets/5dd3701c-e6c0-4b4d-b42d-8f7f8d6b934a" />
+ZASKIA QANITA NAJIYAH 
 
 2430511024 (KELOMPOK 2)
 ☕✨ Destinasi Coffee Shop Sukabumi — Live Performance Dashboard
