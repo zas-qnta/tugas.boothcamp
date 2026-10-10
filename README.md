@@ -1,4 +1,5 @@
-ZASKIA QANITA NAJIYAH
+ZASKIA QANITA NAJIYAH <img width="1365" height="679" alt="Screenshot 2026-10-07 103234" src="https://github.com/user-attachments/assets/5dd3701c-e6c0-4b4d-b42d-8f7f8d6b934a" />
+
 2430511024 (KELOMPOK 2)
 ☕✨ Destinasi Coffee Shop Sukabumi — Live Performance Dashboard
 Platform Akses & Analisis Tautan Interaktif untuk mengeksplorasi, mengelola, dan memantau performa direktori coffee shop terbaik di Sukabumi dengan gaya antarmuka neo-brutalism yang penuh warna dan dinamis!
